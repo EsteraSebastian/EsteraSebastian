@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EsteraSebastian
+- 👋 Hi, I’m @Seba
 - 👀 I’m interested in ... Nauka
 - 
 <!---
